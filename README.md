@@ -27,3 +27,9 @@ Repository Link: https://github.com/total64/attack-resistant-backup-recovery
 MY PRESENTATION VIDEO 
 
 https://drive.google.com/file/d/1t1nngXkyOn_s47aEsZKYUVrO5igHEYsc/view?usp=drivesdk
+
+
+
+MY POWER POINT
+
+https://drive.google.com/file/d/1ITotPzCdnO55yT9AsqoXLdK3yKV8EpNf/view?usp=drivesdk
